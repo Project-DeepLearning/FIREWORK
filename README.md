@@ -1,3 +1,3 @@
 # FIREWORK !
 
-![image](https://user-images.githubusercontent.com/56203475/151647048-8adb0776-d734-43ad-b43e-6c8c8be1f3b6.png)
+![image](https://user-images.githubusercontent.com/56203475/151647068-b5d311b2-1caa-49d2-be8e-311466912f06.png)
